@@ -6,7 +6,6 @@
 - 🌱 I’m currently learning scratch and javascript
 - 📫 How to reach me yasminscarabel@escola.pr.gov.br
 - 😄 Pronouns:she/her
-- 
           
           
 
